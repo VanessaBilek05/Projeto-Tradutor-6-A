@@ -1,0 +1,1 @@
+# Projeto-Tradutor-6-A
